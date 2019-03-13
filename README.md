@@ -1,1 +1,1 @@
-Ta za sho?
+Ta za sho?вапрва
